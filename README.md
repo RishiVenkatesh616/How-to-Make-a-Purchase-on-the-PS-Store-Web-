@@ -1,3 +1,4 @@
-# How to Make a Purchase on the PS Store
-A comprehensive guide for new PlayStation users on how to purchase titles on the PlayStation store
+# How to Purchase Grand Theft Auto on the PS Store
+This user guide provides step-by-step instructions on how to purchase GTA 5 on your PlayStation 5 console via the PlayStation store.
+Pre
 
